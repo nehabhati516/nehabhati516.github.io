@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+~Hi~
 
-Maybe say a some things about yourself.
+My name's Neha.
 
-Or maybe what you plan to blog about.
+I love books, dragons, astrophysics, the color red, How to Train Your Dragon, and Doctor Who!
